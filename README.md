@@ -7,3 +7,4 @@ In eerste instantie heb ik, weeral, geen idee hoe hieraan te beginnen!
 Er worden voorbeelden gegeven in de les, maar geen oefeningen samen 
 We krijgen weinig feedback, dus weten niet of we goed of compleet verkeerd zitten. 
 
+Deze opdracht zal ook iets minder waarde hebben aangezien opeens de datum van indienen veranderd is. 
